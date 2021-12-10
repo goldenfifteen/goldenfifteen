@@ -1,2 +1,2 @@
 ### Hi there 👋
-yeah im just an alt to @golden15
+> yeah im just an alt to @golden15
